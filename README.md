@@ -1,1 +1,4 @@
 Gregory Monteleone
+monteleg@oregonstate.edu
+purple
+stereolab
